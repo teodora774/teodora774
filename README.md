@@ -2,7 +2,7 @@
 - 👀 I’m interested in computational chemistry.
 - 🌱 I have currently completed the second year of my chemistry degree and I am learning python as a summer project. 
 - 💞️ I’m looking to collaborate on small beginner level projects, not necesarily chemistry related. 
-- 📫 How to reach me ...
+- 📫 How to reach me: email address: teodorarosu2005@yahoo.com 
 - 😄 Pronouns: she/her
 
 
